@@ -5,4 +5,5 @@ Dried chilis
 Raw red onions
 Yogurt or sour cream
 Tortilla of choice, warmed in a dry pan
+rice cakes
 
